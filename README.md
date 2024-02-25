@@ -1,1 +1,1 @@
-# blur_it
+# Blur It!
