@@ -1,1 +1,1 @@
-# If something is not clear to you, blur it!
+# «If something is not clear to you, blur it!»
